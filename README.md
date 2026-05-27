@@ -6,7 +6,7 @@
 
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/ccbbbadb-1813-4930-8130-31faaac020f4" />
 
-<img src="https://i.pinimg.com/control1/736x/f6/35/1c/f6351ce84b008a63734da632aa062990.jpg" alt="This may contain: an anime character with pink hair and red eyes, smiling at the camera while holding her hand up to his mouth"/>
+<img width="540" height="303" alt="0f4f9b4f46b18797ba576a8b3254eeb6" src="https://github.com/user-attachments/assets/89333032-8fc3-4aa5-9006-ac5fe1b8011b" />
 
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/ccbbbadb-1813-4930-8130-31faaac020f4" />
 
