@@ -36,3 +36,5 @@ put whatever other info u want here ,idk? Interests, DNI list,ships, whatever
 soudam fans rise
 
 <img width="500" height="216" alt="Screenshot 2026-05-26 10 28 44 PM" src="https://github.com/user-attachments/assets/7df337b2-8aa9-4431-ba47-73667e187c45" />
+
+this README. was made by @cutekomakun 😳!
