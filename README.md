@@ -29,7 +29,7 @@
 
 ![](https://64.media.tumblr.com/aa198998e36b5e7b4648e1058f448835/c9eba09278282048-25/s500x750/9df168afe0733c39dd2f4f6acc90a1e969281b86.gif)
 
-. . . ⫕ Do NOT interact if you're one of the following : basic dni , vivziepop media fans(only if you're a devout fan like... defending everything she does), if you get offended easily by jokes(I use tone tags!), talk about too much gore, a z00, p3d0, ablist, homophobe, inc3st shipper, etc...
+. . . ⫕ Do NOT interact if you're one of the following : basic dni , vivziepop media fans(only if you're a devout fan like... defending everything she does), if you get offended easily by jokes(I use tone tags!), talk about too much gore, a z00, p3d0, ableist, homophobe, inc3st shipper, etc...
 
 <div align="center">
 
