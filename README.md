@@ -12,7 +12,7 @@
 
 &emsp;
 
-🍧 .  Hi hi hi wats up youtube! ! ! I'm a pro Soudam liker yum. I'm also very cool so please don't hesitate to sit with me okay? OK. Because I am kind and grateful.
+🍧 .  Hi hi hi wats up youtube! ! ! I'm a pro Soudam liker yum. I'm also very cool so please don't hesitate to sit with me okay? OK. Because I am kind and grateful. Be my friend NOW!  ! ! !
 
 . . . ⫕ 🥤🔧 | 16 | ESFP | 5w6  ∿⸝⸝
 
